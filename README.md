@@ -1,3 +1,3 @@
-#  Outright Mental™ Terms &amp; Conditions of Use
+#  Terms &amp; Conditions of Use for Outright Mental™
 
 https://terms.outright.io/
